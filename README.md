@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @biilee .
+- 👋 Hi, I’m @biilee ..
 - 👀 I’m interested in 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborat
